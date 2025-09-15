@@ -91,8 +91,8 @@ We may update this Privacy Policy from time to time. Changes will be reflected i
 
 If you have questions about this Privacy Policy, please contact us at:
 
-**Email**: [Your email address]
-**Website**: [Your website if you have one]
+**Email**: lfsa.business@gmail.com
+**Website**: lfsadigital.com
 
 ## Consent
 
